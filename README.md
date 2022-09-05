@@ -1,0 +1,1 @@
+The presentation provided for the project is avaible under https://docs.google.com/presentation/d/1CO0Ad0PyQAGJN0iqYKDdr46PtlBgAxr-c7ZhYSyTRAc/edit?usp=sharing
